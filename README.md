@@ -41,7 +41,7 @@ I’m also continuing to improve my skills and expand my portfolio.
 
 ## 🙏 Special Thanks
 
-A huge thank you to our instructor for their continuous support and guidance throughout this Bootcamp journey. Their insights and encouragement have played a major role in helping us stay focused and motivated. Thank you for being such an amazing mentor!
+A huge thank you to our instructor Abderrahim Agra for their continuous support and guidance throughout this Bootcamp journey. Their insights and encouragement have played a major role in helping us stay focused and motivated. Thank you for being such an amazing mentor!
 
 ---
 
